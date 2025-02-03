@@ -26,3 +26,4 @@
 #### ᴡʜᴀᴛꜱᴀᴘᴘ ʜᴇʟᴘ
 <a href="https://wa.me//263714500434?v=1"><img src="https://i.ibb.co/56GSVZw/whatsapp-btn.zusyco.png" alt="ᴄᴏɴᴛᴀᴄᴛ ᴏᴡɴᴇʀ ᴏɴ ᴡʜᴀᴛꜱᴀᴘᴘ ꜰᴏʀ ᴅᴇᴘʟᴏʏɪɴɢ " border="2" width="170" height="41" ></a>
 
+<a href="https://replit.com/@MRNima/ZUSYCO-PAIR-CODE?v=1"><img src="https://i.ibb.co/5BGSVZw/pair-code-btn-zusyco.png" alt="PAIR-CODE" border="2" width="170" height="41" ></a>
